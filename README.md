@@ -1,0 +1,1 @@
+# impacto-chatgpt-desenvolvimento-software
